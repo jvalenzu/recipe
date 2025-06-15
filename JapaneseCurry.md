@@ -7,23 +7,23 @@ Not 100% sure where I got it from originally but I think it was https://norecipe
 Serves about 4.  I like to serve over sticky noodles, rice also works.
 
 ## For the pre-curry
-2 tsp oil
-large onion, diced
-1 cup baby carrots, cut into chunks
-1 lb. Yukon gold potatoes, skinned and cut into chunks
-1 apple, pureed
-2 tsp kosher salt
-1 tsp garam masala
-1/2 cup peas
-15oz can garbanzo beans, rinsed
-4 cups water
+* 2 tsp oil
+* large onion, diced
+* 1 cup baby carrots, cut into chunks
+* 1 lb. Yukon gold potatoes, skinned and cut into chunks
+* 1 apple, pureed
+* 2 tsp kosher salt
+* 1 tsp garam masala
+* 1/2 cup peas
+* 15oz can garbanzo beans, rinsed
+* 4 cups water
 
 ## For the roux
-3 tbsp. butter
-1/4 cup flour
-2 tbsp. garam masala
-1 tbsp. ketchup
-1 tbsp. vegan Worcestershire sauce (most aren't, look out!)
+* 3 tbsp. butter
+* 1/4 cup flour
+* 2 tbsp. garam masala
+* 1 tbsp. ketchup
+* 1 tbsp. vegan Worcestershire sauce (most aren't, look out!)
 
 ## PRE-CURRY STEPS
 * briefly microwave potatoes (maybe 5 minutes).  The goal here is not to cook them but just soften them up a little.  Don't overdo it!  Undercooked potatoes will have an opportunity to soften while simmering, but overcooked potatoes you will have to throw out because that gluey stuff is gross
